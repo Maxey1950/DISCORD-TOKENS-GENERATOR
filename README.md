@@ -1,2 +1,1 @@
-PASSWORD : 123
-https://www.mediafire.com/file/tsk8gbytnevr21c/Aqua_Token_Generator.rar/file
+MY ACCOUNT WAS HACKED AT THIS TIME IF YOU SEE ANY LINK DO NOT CLICK IT
